@@ -4,7 +4,7 @@
 <img src="https://komarev.com/ghpvc/?username=abolishregrets&color=373a65&base=200&style=flat&label=_ _poptarts_ _" /> <p align="center">
 
 <p align="center">
-<img src="https://64.media.tumblr.com/3e6a6b1c8564df540fbc86a12cd16abe/e07ae7126822d49c-d3/s540x810/6e26a56b52e9a1ac75257cd0a8cf5fdd911ece2b.pnj" width="300" height="300%""/>
+<img src="https://64.media.tumblr.com/b0e98aa4deae76e621edf838d97ea4cf/421bf044d8b43389-5f/s2048x3072/c5079da14c511c6da71b9e5bd89cf2c8e0ad60b7.jpg" width="300" height="300%""/>
 </p>
 
 <p align="center"> art is by shrmajj on tumblr, they hav peak art... </p>
