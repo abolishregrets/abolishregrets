@@ -8,4 +8,4 @@
 <img src="https://64.media.tumblr.com/b0e98aa4deae76e621edf838d97ea4cf/421bf044d8b43389-5f/s2048x3072/c5079da14c511c6da71b9e5bd89cf2c8e0ad60b7.jpg" width="300" height="300%""/>
 </p>
 
-<p align="center"> art is by shrmajj on tumblr, they hav peak art... </p>
+<p align="center"> making slowlu.. </p>
