@@ -9,3 +9,5 @@
 </p>
 
 <p align="center"> making slowlu.. </p>
+
+꒰ 🍷 ꒱ ㅤ ── ㅤ jhari ╱ arctic ㅤ ✦ ㅤ he ╱ she+ ㅤ ˚₊·—̳͟͞͞♡⟢ ㅤc*h freely　 &&.　 w2i.◝ ㅤ .>ᵥᵥ<. < ignore this my notes app aint working for SHIT
